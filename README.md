@@ -1,0 +1,1 @@
+# Ai-trading-bot-statagy-ict-2019-concept
